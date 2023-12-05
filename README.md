@@ -4,7 +4,7 @@
 
 At Bayader Aljazeera, we specialize in providing high-quality, affordable packaging and printing solutions to businesses of all sizes. Founded in 2002, we have a long history of helping businesses achieve their goals through our innovative and effective packaging solutions.
 
-We are proud to be the first manufacturer in Saudi Arabia to offer low-quantity, ready-to-use packaging and printing solutions specifically designed for small and medium-sized enterprises (SMEs). We understand that SMEs often have limited budgets and resources, and we are committed to providing them with the packaging and printing solutions they need to succeed.
+We are proud to be the first manufacturer in Saudi Arabia to offer low-quantity, ready-to-use packaging and printing solutions specifically designed for small and medium-sized enterprises. We understand that SMEs often have limited budgets and resources, and we are committed to providing them with the packaging and printing solutions they need to succeed.
 
 In addition to our traditional packaging and printing services, we have also developed an automated online platform that allows businesses to customize their packaging selections and place orders online. This platform makes it easy for businesses to get the packaging they need quickly and easily.
 
